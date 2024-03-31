@@ -1,0 +1,1 @@
+Music by Woofle and Strife, link avalible at https://galaxytrail.bandcamp.com/album/freedom-planet-official-soundtrack.
