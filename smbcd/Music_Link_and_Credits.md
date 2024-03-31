@@ -1,0 +1,1 @@
+Music by Famicon CD, no link avalible to the uploader's knowledge.
